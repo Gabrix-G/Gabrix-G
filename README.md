@@ -12,7 +12,7 @@
 ## SOBRE MI
 
 - ⭐ Github You learn⭐ 
-- 🎥 Nos entretenemos un rato? [TIKTOK]([https://www.twitch.tv/gabrix_cj](https://www.tiktok.com/@gabalex.q)) 
+- 🎥 Nos entretenemos un rato? [TIKTOK](https://www.tiktok.com/@gabalex.q))
 - 🎥 Te espero en mi Twitch [TWITCH](https://www.twitch.tv/gabrix_cj) (300+ follows)
 - 🧑‍🏫 Creador propio de [G.A.B.R.I.X]
 <br>
