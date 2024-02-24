@@ -14,6 +14,6 @@
 - ⭐ Github You learn⭐ 
 - 🎥 Nos entretenemos un rato? [TIKTOK](https://www.tiktok.com/@gabalex.q))
 - 🎥 Te espero en mi Twitch [TWITCH](https://www.twitch.tv/gabrix_cj) (300+ follows)
-- 🧑‍🏫 Creador propio de [G.A.B.R.I.X]
-- ☢️ Te espero en mi canal de [DISCORD](https://www.twitch.tv/gabrix_cj](https://discord.gg/UfDZ7Fn5Rz)https://discord.gg/UfDZ7Fn5Rz) 
+- ☢️ Te espero en mi canal de [DISCORD](https://www.twitch.tv/gabrix_cj](https://discord.gg/UfDZ7Fn5Rz)https://discord.gg/UfDZ7Fn5Rz)
+- - 🧑‍🏫 Creador propio de mi propio nombre [G.A.B.R.I.X] 👑
 <br>
