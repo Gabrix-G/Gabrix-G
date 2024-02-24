@@ -1,7 +1,6 @@
 <div align="center">
 <h1 align="center">Hola, soy <a href="https://linktr.ee/GabrixCJ">Gabrix CJ</a> 👋</h1>
-  <blockquote class="tiktok-embed" cite="https://www.tiktok.com/@gabalex.q" data-unique-id="gabalex.q" data-embed-type="creator" style="max-width: 780px; min-width: 288px;" > <section> <a target="_blank" href="https://www.tiktok.com/@gabalex.q?refer=creator_embed">@gabalex.q</a> </section> </blockquote> <script async src="https://www.tiktok.com/embed.js"></script>
-</div>
+ 
 <img src="https://hotimg.com/NaG93">
 
 
