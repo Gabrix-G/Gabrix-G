@@ -18,6 +18,3 @@
 - - 🧑‍🏫 Creador propio de mi propio nombre [G.A.B.R.I.X] 👑
 <br>
 
-## Logros 
-
-https://github-profile-trophy.vercel.app/?username=Gabrix-G-ma&theme=monokai
