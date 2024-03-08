@@ -1,5 +1,5 @@
 
-## ╰☆╮¤°.¸¸.·´¯`»® MIS ENLACES ®«´¯`·.¸¸.°¤╰☆╮ 
+   ## ╰☆╮¤°.¸¸.·´¯`»® MIS ENLACES ®«´¯`·.¸¸.°¤╰☆╮ 
 <div align="center">
 <h1 align="center">Hola, soy <a href="https://linktr.ee/GabrixCJ">Gabrix CJ</a> 👋</h1>
 
