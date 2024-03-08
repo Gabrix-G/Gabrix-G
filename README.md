@@ -26,7 +26,7 @@
                      /  ___  \
                    /  /  _  \  \
                  /( /( /(_)\ )\ )\
-                (  \  \ ___ /  /  )  "Las oportunidades deben crearse"
+                            (  \  \ ___ /  /  )  "Las oportunidades deben crearse"
                 (    \ _____ /    )
                 /(               )\
                |  \             /  |
