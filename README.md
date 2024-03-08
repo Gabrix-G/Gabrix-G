@@ -20,4 +20,4 @@
 
 ## Logros 
 
-https://github-profile-trophy.vercel.app/?Gabrix-G=ryo-ma&theme=monokai
+https://github-profile-trophy.vercel.app/?username=Gabrix-G-ma&theme=monokai
