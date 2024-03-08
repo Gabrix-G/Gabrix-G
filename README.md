@@ -17,3 +17,7 @@
 - ☢️ Te espero en mi canal de [DISCORD](https://discord.gg/UfDZ7Fn5Rz)
 - - 🧑‍🏫 Creador propio de mi propio nombre [G.A.B.R.I.X] 👑
 <br>
+
+## Logros 
+
+https://github-profile-trophy.vercel.app/?Gabrix-G=ryo-ma&theme=monokai
