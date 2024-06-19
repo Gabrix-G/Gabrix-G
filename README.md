@@ -15,7 +15,7 @@
 
 - ⭐ Github You learn⭐ 
 - 🎥 Nos entretenemos un rato? [TIKTOK](https://www.tiktok.com/@gabalex.q))
-- 🎥 Te espero en mi Twitch [TWITCH][AlexGrew](https://www.twitch.tv/alexgrew) (300+ follows)
+- 🎥 Te espero en mi Twitch [TWITCH][AlexGrew](https://www.twitch.tv/alexgrew) (400+ follows)
 - ☢️ Te espero en mi canal de [DISCORD](https://discord.gg/UfDZ7Fn5Rz)
 - 🧑‍🏫 Creador propio de mi propio nombre [G.A.B.R.I.X] 👑
 <br>
