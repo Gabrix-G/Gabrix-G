@@ -26,7 +26,7 @@
 [![](https://visitcount.itsvg.in/api?id=Gabrix-G&icon=6&color=4)](https://visitcount.itsvg.in)
 
 
-## ╰☆╮¤°.¸¸.·´¯`»® Por si quieres apoyar mi carrera ®«´¯`·.¸¸.°¤╰☆╮ 
+## ╰☆╮¤°.¸¸.·´¯`»® Ayuda para mi carrera ®«´¯`·.¸¸.°¤╰☆╮ 
   [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/GabrixXY) 
 
   
