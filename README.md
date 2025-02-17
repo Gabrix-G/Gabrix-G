@@ -19,7 +19,7 @@
 ![](https://github-profile-trophy.vercel.app/?username=Gabrix-G&theme=shadow_red&no-frame=false&no-bg=true&margin-w=4)
 
 
-## ╰☆╮¤°.¸¸.·´¯`»® Frase Importante  ®«´¯`·.¸¸.°¤╰☆╮ 
+## ╰☆╮¤°.¸¸.·´¯`»® Frase de un programador  ®«´¯`·.¸¸.°¤╰☆╮ 
 ![](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=tokyonight)
 
 ---
